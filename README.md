@@ -24,4 +24,4 @@
 
 只需掌握以上几大标准，便可轻松甄别优质日本AV资源站点，进入稳定、高清、安全的观影环境，畅快享受私人娱乐时光。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/gmz20250711/rbriben1)</span>
